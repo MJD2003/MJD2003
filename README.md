@@ -3,7 +3,7 @@
 🍃Mern Stack Developer<br/>
 🌀Ui/UX Designer<br/>
 🌬I Create your Brands & Web Apps and much more<br/>
-🌏I make your sure your product is at best conditions to beat the competition<br/>
+🌏I make sure your product is at the best conditions to beat the competition<br/>
 🌅My Social Media : [Instagram](https://www.instagram.com/saad_majdaoui7/) [X](https://x.com/Saad_Majdaoui)<br/>
 
 
